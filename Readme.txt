@@ -1,0 +1,1 @@
+coba menulis text
